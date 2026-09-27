@@ -227,4 +227,4 @@ Escape from Ever After: Onboarding is available as a complete free version, mean
 Embark on your adventure today and save the fairy tale world with Escape from Ever After: Onboarding! Download it now and join the fight against corporate greed!
 
 ---
-**Last updated:** 2026-09-27 13:41:26 UTC
+**Last updated:** 2026-09-27 18:09:17 UTC
